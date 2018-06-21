@@ -1,1 +1,1 @@
-https://makoskamil.github.io/zadanie_15_6
+https://makoskamil.github.io/zadanie_15_7
